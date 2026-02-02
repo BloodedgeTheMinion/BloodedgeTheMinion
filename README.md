@@ -27,7 +27,7 @@
 <img align="center" src="https://carcuvorous.carrd.co/assets/images/gallery16/3088bb39.gif?v=72ce5086">
   <br/>
 <img src="https://gifcity.carrd.co/assets/images/gallery11/e7cccd33.gif?v=49efbe4c">
-<b>personality: </b><i>doesn't get alog with humans, minions fear but respect them,</i>
+<b>personality: </b><i>doesn't get along with humans, minions fear but respect them,</i>
 <img src="https://gifcity.carrd.co/assets/images/gallery11/e7cccd33.gif?v=49efbe4c">
   <br/>
 <img src="https://enchantments.carrd.co/assets/images/gallery07/47e44551.gif?v=5c8435d5">
